@@ -2,7 +2,8 @@
 - 👀 I’m interested in your mom
 - 🌱 I’m currently learning the anatomy of your mom
 - 💞️ I’m looking to collaborate on your mom
-- 📫 How to reach me ask your mom
+- 📫 your mom very tasty btw
+-
 
 <!---
 nalin-aran-a/nalin-aran-a is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
